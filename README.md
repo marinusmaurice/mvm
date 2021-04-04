@@ -1,4 +1,4 @@
-- 👋 Hi, I’m @marinusmaurice
+- 👋 Hi, I’m @marinusmaurice. Well actually, Maurice Marinus
 - 👀 I’m interested in everything that ends up with ne procrastinating
 - 🌱 I’m currently learning my PhD in Procrastination
 - 💞️ I’m looking to collaborate on ...I'll fill this in later, as I'm busy with something else right now
